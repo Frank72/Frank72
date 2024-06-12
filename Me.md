@@ -6,10 +6,8 @@ At making me crazy
 Bot after a couple of months I get better and better 
 
 So my web as her: 
- https://7ed2bro.000webhostapp.com/
+closed for now 
 
 My discord:
- BOGEY | MAN#4145
+mr.roor1
 
-My Insta: 
- 7ed25
